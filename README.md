@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IQ_Unavailable
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning yo mama
+- 💞️ I’m looking to collaborate on yo daddy
+- 📫 How not to reach me 
